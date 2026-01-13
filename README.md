@@ -1,0 +1,1 @@
+# grocify-privacy-policy
